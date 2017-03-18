@@ -34,7 +34,7 @@ Anna Shimova
 
 Arda Sozen
 
-Jit Kit Tan
+Jit Kit Tan: I'm a Freshman from Singapore.
 
 Eagle	Wu
 
